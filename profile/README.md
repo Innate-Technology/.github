@@ -34,4 +34,6 @@ Our early milestones include conceptualizing and visualizing this connection in 
 
 This is only the beginning of something extraordinary. As the forefront of this technological shift, Innate Technologies is deeply committed to integrity and clarity in its pursuits. We stand apart from the mainstream, leading with vision, and we welcome only those who feel the call to join us in bringing this truth into reality.
 
-* Innate Technologies – Redefining Connection. Shaping the Future.
+
+
+_Innate Technologies – Redefining Connection. Shaping the Future._
